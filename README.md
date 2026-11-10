@@ -13,4 +13,4 @@ AI Talent Hunter | 专注大模型 & AI基础设施
 ✅ AI团队，正在高薪寻才
 
 欢迎随时交流！
-WeChat: 17711448558
+WeChat: 18482204341
